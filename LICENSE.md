@@ -1,4 +1,4 @@
-
+secure Scripts for dayz cheats - instant zombie kill and auto-ammo collector offers the most advanced dayz cheats scripts, with instant zombie kill and auto-ammo collector. Ideal
 
 
 
